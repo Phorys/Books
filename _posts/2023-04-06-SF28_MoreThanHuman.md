@@ -10,9 +10,10 @@ While the ideas in the book are, given the time, novel. It also feels as though 
 As one is reading this book it almost feels as if it is providing the underpinnings for the majority of comic books to be invented later. Without this book I highly doubt that comic books (and especially the universes they portray) would've been the same today. In some way it feels as though X-men and Marvel in general are standing on the shoulders of giants and of these giants is Theodore Sturgeon and his book "More Than Human".
 
 In this day and age I should also lend a comment to certain wordings being used, which have fortunately since been removed from the majority of people's vocabularies. The language might offend, but it should be remembered that the book was written at a different time and fortunately I'd like to think that humanity has since become slightly more civilised (Which happens one small step at the time.).
-## Score: 4/5
-After some consideration I have decided on a score of 4/5, which is mostly due to the novelty of the core idea of the book. For it to have been a 5, it should've explored the ideas presented more completely. A 3 was out of the question, since the novelty and thus importance of the book is not to be overlooked. It is by all means an interesting read, where it is not predictable to where the author intends to lead us, which is one of the strengths of the book.
+## Score: 7/10
+After some consideration I have decided on a score of 7/10, which is mostly due to the novelty of the core idea of the book. For it to have been a higher score, it should've explored the ideas presented more completely. A score of 6 or lower was out of the question, since the novelty and thus importance of the book is not to be overlooked. It is by all means an interesting read, where it is not predictable to where the author intends to lead us, which is one of the strengths of the book.
 ## Links
 [Amazon.com](https://www.amazon.com/More-Than-Human-S-F-MASTERWORKS-ebook/dp/B005OAHGE4/ref=sr_1_1?crid=38060UD9AQ39U&keywords=more+than+human&qid=1680771752)<br>
 [Amazon.co.uk](https://www.amazon.co.uk/More-Than-Human-S-F-MASTERWORKS/dp/1857988523/ref=sr_1_2?crid=3EN5VLYPYW9XY&keywords=more+than+human&qid=1680771812)<br>
+[Amazon.de](https://www.amazon.de/-/en/Theodore-Sturgeon/dp/1857988523)<br>
 [Goodreads](https://www.goodreads.com/en/book/show/541024)
