@@ -10,7 +10,7 @@ The book itself is well-written and it is a fun read, yet somehow the view of fu
 I should add that this book lands very much in the same range of books as "The Hitchhiker's Guide to the Galaxy" by Douglas Adams and if one is interested in a fantastical tale and simply wishes there was a bit more crazy in the world, then this is not a bad place to go. I imagine a younger audience would find it quite entertaining.
 
 ## Score: 6/10
-Based on the two books I've read by Kurt Vonnegut I find that he can be a bit of an acquired taste - A taste I have yet to acquire it seems. I cannot fault the book, yet I hoped for something a little more profound. "Slaughterhouse-Five" had to me a stronger connection to reality, which I gained something from, while "The Sirens of Titan" is a little too detached from reality to glean much from.
+Based on the two books I've read by Kurt Vonnegut I find that he can be a bit of an acquired taste - A taste I have yet to acquire it seems. I cannot fault the book, yet I hoped for something a little more profound. "Slaughterhouse-Five" had to me a stronger connection to reality, which I gained something from, while "The Sirens of Titan" is, in my view, a little too detached from reality to glean much from.
 
 ## Links
 [Amazon.com](https://www.amazon.com/Sirens-Titan-Novel-Kurt-Vonnegut-ebook/dp/B0012RMVCK)<br>
