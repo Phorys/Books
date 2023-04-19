@@ -1,6 +1,6 @@
 ---
 title: "18. The Sirens of Titan by Kurt Vonnegut"
-date: 2023-04-14
+date: 2023-04-17
 ---
 ## Review
 "The Sirens of Titan" by Kurt Vonnegut is a book, which seeks to explore the point of life in regards to the universe, while also providing a casual comment of the randomness of it all. I find that it sets out on a journey to, in some roundabout way, find the true meaning of life.
