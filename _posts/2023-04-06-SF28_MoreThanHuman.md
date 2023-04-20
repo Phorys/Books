@@ -13,7 +13,5 @@ In this day and age I should also lend a comment to certain wordings being used,
 ## Score: 7/10
 After some consideration I have decided on a score of 7/10, which is mostly due to the novelty of the core idea of the book. For it to have been a higher score, it should've explored the ideas presented more completely. A score of 6 or lower was out of the question, since the novelty and thus importance of the book is not to be overlooked. It is by all means an interesting read, where it is not predictable to where the author intends to lead us, which is one of the strengths of the book.
 ## Links
-[Amazon.com](https://www.amazon.com/More-Than-Human-S-F-MASTERWORKS-ebook/dp/B005OAHGE4/ref=sr_1_1?crid=38060UD9AQ39U&keywords=more+than+human&qid=1680771752)<br>
-[Amazon.co.uk](https://www.amazon.co.uk/More-Than-Human-S-F-MASTERWORKS/dp/1857988523/ref=sr_1_2?crid=3EN5VLYPYW9XY&keywords=more+than+human&qid=1680771812)<br>
-[Amazon.de](https://www.amazon.de/-/en/Theodore-Sturgeon/dp/1857988523)<br>
+[Amazon](https://www.amazon.com/More-Than-Human-S-F-MASTERWORKS-ebook/dp/B005OAHGE4?&_encoding=UTF8&tag=phorys-20&linkCode=ur2&linkId=72f7bf0f1020f47e6c04087ef0436615&camp=1789&creative=9325)<br>
 [Goodreads](https://www.goodreads.com/en/book/show/541024)

@@ -13,7 +13,5 @@ I should add that this book lands very much in the same range of books as "The H
 Based on the two books I've read by Kurt Vonnegut I find that he can be a bit of an acquired taste - A taste I have yet to acquire it seems. I cannot fault the book, yet I hoped for something a little more profound. "Slaughterhouse-Five" had to me a stronger connection to reality, which I gained something from, while "The Sirens of Titan" is, in my view, a little too detached from reality to glean much from.
 
 ## Links
-[Amazon.com](https://www.amazon.com/Sirens-Titan-Novel-Kurt-Vonnegut-ebook/dp/B0012RMVCK)<br>
-[Amazon.co.uk](https://www.amazon.co.uk/Sirens-Titan-S-F-MASTERWORKS/dp/1857988841)<br>
-[Amazon.de](https://www.amazon.de/-/en/Kurt-Vonnegut/dp/1857988841)<br>
+[Amazon](https://www.amazon.com/Sirens-Titan-Novel-Kurt-Vonnegut-ebook/dp/B0012RMVCK?&_encoding=UTF8&tag=phorys-20&linkCode=ur2&linkId=1fd0cdd5434c435e08df875c8d8ac78f&camp=1789&creative=9325)<br>
 [Goodreads](https://www.goodreads.com/en/book/show/4982)
