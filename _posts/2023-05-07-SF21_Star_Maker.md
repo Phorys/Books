@@ -1,5 +1,5 @@
 ---
-title: "Up next: 21. Star Maker by Olaf Stapledon"
+title: "21. Star Maker by Olaf Stapledon"
 date: 2023-05-07
 ---
 ## Review
