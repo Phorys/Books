@@ -1,6 +1,6 @@
 ---
-title: "Up Next; 89. The Prestige by Christopher Priest"
-date: 2023-05-08
+title: "Up next: 89. The Prestige by Christopher Priest"
+date: 2023-05-09
 ---
 ## Review
 To be reviewed once finished.
