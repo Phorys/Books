@@ -10,6 +10,6 @@ description: > # this means to ignore newlines until "baseurl:"
 github_username:  Phorys # DO NOT include the @ character, or else the build will fail!
 
 # Google Analytics
-google_analytics: G-E1ZQ814JQ7
+#google_analytics: G-E1ZQ814JQ7
 
 show_excerpts: false # set to false to remove excerpts on the homepage
