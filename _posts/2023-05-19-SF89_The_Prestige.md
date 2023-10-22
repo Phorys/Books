@@ -12,5 +12,4 @@ Comparing "The Prestige" to other books is an interesting challenge. Though it i
 It is the first book I've read by Christopher Priest and his style of writing feels extremely solid. Writing a book like this leaving no gaps is an impressive feat and though I know little of stage magicians, I find that it will be difficult to find a book that can exceed "The Prestige" in terms of telling a more enthralling story of stage magicians at the turn of the 20th century.
 
 ## Links
-[Amazon](https://www.amazon.com/gp/product/B0056A4YZ6?&_encoding=UTF8&tag=phorys-20&linkCode=ur2&linkId=5fba8eefa569024604f5191a2d55a7f4&camp=1789&creative=9325)<br>
 [Goodreads](https://www.goodreads.com/en/book/show/239239)

@@ -13,5 +13,4 @@ I find that there is little point to change the final paragraph or even score mu
 
 Brian Aldiss is a very solid writer and he has in this case set out on a mission. What he does well is to make a simple change to a planet and see where it takes him. As a reader it is a very interesting to journey. I do miss that the book is a bit more clear-cut in terms of discussions of different view points.
 ## Links
-[Amazon](https://www.amazon.com/Helliconia-Spring-Brian-W-Aldiss/dp/0441326269/ref=sr_1_4?crid=107V52CJPPC28&amp;keywords=helliconia&amp;qid=1688738668&amp;sprefix=helliconi%252Caps%252C180&amp;sr=8-4&_encoding=UTF8&tag=phorys-20&linkCode=ur2&linkId=246d5c38a35b3a27f0a81f0560559f6a&camp=1789&creative=9325)<br>
 [Goodreads](https://www.goodreads.com/book/show/672243)

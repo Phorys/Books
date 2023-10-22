@@ -12,5 +12,4 @@ Now, comparing this book to others seems a bit of an unfair thing to do, as it p
 ## Score: 7/10
 The originality of the book is magnificent and it is without a doubt a classic. Yet, as time moves further from the original text, it seems that other authors tend to built on top of each other, a bit like a scientific community, to further enhance the predictions. Thus, as we move further forward in time we either move further away from the vision of H. G. Wells or perhaps even closer towards it? 
 ## Links
-[Amazon](https://www.amazon.com/Time-Machine-H-G-Wells-ebook/dp/B07VJFX8KQ/?&_encoding=UTF8&tag=phorys-20&linkCode=ur2&linkId=e694b39632afbe980ec1bd818c1e942f&camp=1789&creative=9325)<br>
 [Goodreads](https://www.goodreads.com/book/show/2493)

@@ -12,5 +12,4 @@ Comparing "The Inverted World" is best done by comparing it to Christopher Pries
 ## Score: 8/10
 Chrisopher Priest is a solid and stable write. He sets out to tell a story of hardship and writes it with no heroes or heroines. The characters are complex creatures which are not super-human, but just ordinary people at the centre of their own lives. It is a style of writing that encompasses my understanding of the classic British phrase: "Keep calm and carry on." 
 ## Links
-[Amazon](https://www.amazon.com/s?k=inverted+world+by+christopher+priest&crid=2A7ZQJUP1J4AV&sprefix=The+inverted+world+by+C%2Caps%2C156&linkCode=ll2&tag=phorys-20&linkId=f005c7c516465c6a03a77dd61b7b3144&language=en_US&ref_=as_li_ss_tl)<br>
 [Goodreads](https://www.goodreads.com/en/book/show/142181)

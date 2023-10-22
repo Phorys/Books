@@ -13,5 +13,4 @@ It is often compared to "Dune" by Frank Herbert, due to the religious tenets and
 I feel I have been blessed to have been able to read this book by Roger Zelazny (though preferably not by the Gods presented in the book!). It is obvious why he has won many awards for his books and I know it will not be long before I read the next book by Roger Zelazny. I have wavered between scoring the book a 9 or a 10. I find that I would've liked to come away wiser than when I first sat down with the book and I do not feel that this was achieved. However, the book set out to entertain and this is did perfectly well. The deciding factor must've been the part of the book known only as "the pun", maybe you miss it as a reader, but once it is found it encapsulates the whole spirit of the book.
 
 ## Links
-[Amazon](https://www.amazon.com/Lord-Light-Roger-Zelazny/dp/0060567236?&_encoding=UTF8&tag=phorys-20&linkCode=ur2&linkId=e17c0580f0b1fb7cd0a6331aecdc4ab7&camp=1789&creative=9325)<br>
 [Goodreads](https://www.goodreads.com/book/show/13821)

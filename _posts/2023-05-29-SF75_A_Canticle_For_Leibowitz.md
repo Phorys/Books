@@ -13,5 +13,4 @@ The first place to look for comparisons is probably in a whole different type of
 The book itself is excellent and it is clear that a lot of thought/study has gone into writing this book. I am impressed with the ability to write characters with such a large amount of personality. The score of 8 is mostly due to the complexity induces by the amount of latin and religious tradition, both of which I am not well-versed. I do not know how large a part of the book I have missed on account of the latin, but I imagine that the main points of the book was written in English.
 
 ## Links
-[Amazon](https://www.amazon.com/Canticle-Leibowitz-Walter-Miller-Jr/dp/0553273817/?&_encoding=UTF8&tag=phorys-20&linkCode=ur2&linkId=e694b39632afbe980ec1bd818c1e942f&camp=1789&creative=9325)<br>
 [Goodreads](https://www.goodreads.com/book/show/164154)

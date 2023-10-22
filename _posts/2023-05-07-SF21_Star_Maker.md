@@ -13,5 +13,4 @@ Other similar works are difficult to find as many spring to mind, yet none of th
 I am in awe of the imagination of Olaf Stapledon and his ability to make something that can be best described as "The Fictional Bible for the Scientific Mind" is simply mind-blowing. If one were to do drugs to expand ones mind, it wouldn't be necessary, because Olaf Stapledon already did it for you and wrote it all down. Though the book can feel a bit dry and heavy to get through, I sincerely hope that the entirety of the human civilisation reads this book with an open mind and hopefully listens. Not only does he point out fundamental issues in our society, but he also proposes ideas, which could be considered for potential solutions.
 
 ## Links
-[Amazon](https://www.amazon.com/Star-Maker-Olaf-Stapledon-ebook/dp/B07JQ4B7JS?&_encoding=UTF8&tag=phorys-20&linkCode=ur2&linkId=0d16d97ecd4c5edfaba8c70509c70bcb&camp=1789&creative=9325)<br>
 [Goodreads](https://www.goodreads.com/book/show/525304)

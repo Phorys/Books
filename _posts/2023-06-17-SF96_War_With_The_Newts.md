@@ -11,5 +11,4 @@ The closest comparison to another book I have read would probably be "Star Maker
 ## Score: 8/10
 The book is well-written and the author manages to make an incisive comment on slavery and how poorly humanity manages to treat each other across the globe and take advantage of others for their own advantage. It is books like this that allows one to remember the horrors of the past, so we can avoid repeating them again and it also shows that the effort to become "civilised" is a long and hard struggle, that never really finishes. 
 ## Links
-[Amazon](https://www.amazon.com/War-Newts-Karel-Capek/dp/1774640317?&_encoding=UTF8&tag=phorys-20&linkCode=ur2&linkId=db7aa6f4b8c8a93a8ab71cf9399559cb&camp=1789&creative=9325)<br>
 [Goodreads](https://www.goodreads.com/book/show/816440)

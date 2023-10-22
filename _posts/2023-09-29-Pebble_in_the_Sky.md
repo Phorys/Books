@@ -12,5 +12,4 @@ Much like the previous book in the series it can be compared to "War with the Ne
 Personally, I find that Isaac Asimov is one of my favourite authors. His main strength is the ability to never stray from the path he lays down. He is the master of having a clarity of vision and following that vision all the way through, with little to no detours. I find that this story is quite easy to follow, while not being simple. The characters themselves are distinct and well-written, with clear motivations.
 
 ## Links
-[Amazon](https://www.amazon.com/s?k=Pebble+in+the+Sky&crid=1YIUBHCQT8KLA&sprefix=pebble+in+the+sky%2Caps%2C187&linkCode=ll2&tag=phorys-20&linkId=a837ff43f4ab0a401df8089b58de401f&language=en_US&ref_=as_li_ss_tl)<br>
 [Goodreads](https://www.goodreads.com/book/show/41820)

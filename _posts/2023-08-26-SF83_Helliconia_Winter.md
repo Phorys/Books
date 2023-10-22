@@ -15,5 +15,4 @@ This third book is a great way to finish the series and it becomes clear that th
 I find that this final book is the best of the series and it shows the immensity of the effort that the author has put into creating a world, which is harsh and brutal, yet somehow life still prevails, through the most impressive biological inventions.
 
 ## Links
-[Amazon](https://www.amazon.com/Helliconia-Spring-Brian-W-Aldiss/dp/0441326269/ref=sr_1_4?crid=107V52CJPPC28&amp;keywords=helliconia&amp;qid=1688738668&amp;sprefix=helliconi%252Caps%252C180&amp;sr=8-4&_encoding=UTF8&tag=phorys-20&linkCode=ur2&linkId=246d5c38a35b3a27f0a81f0560559f6a&camp=1789&creative=9325)<br>
 [Goodreads](https://www.goodreads.com/book/show/672245)

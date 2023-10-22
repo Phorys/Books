@@ -13,5 +13,4 @@ The themes that is covered in this book a covered in much other Science Fiction 
 Personally, I find that Isaac Asimov is one of my favourite authors. His main strength is the ability to never stray from the path he lays down. He is the master of having a clarity of vision and following that vision all the way through, with little to no detours. It is so masterfully executed that almost any book feels like a breeze to read, yet the true depth of the book lies in the reflection after you have finished and realise the true depth of the story you've been told.
 
 ## Links
-[Amazon](https://www.amazon.com/s?k=The+Current+of+Space&crid=16X1K908KPDZE&sprefix=the+current+of+space%2Caps%2C154&linkCode=ll2&tag=phorys-20&linkId=9742a77b8ef0cfa70314b82fc27dd5e8&language=en_US&ref_=as_li_ss_tl)<br>
 [Goodreads](https://www.goodreads.com/book/show/85434)
