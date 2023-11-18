@@ -1,0 +1,16 @@
+---
+title: "Fight Club by Chuck Palahniuk"
+date: 2023-11-18
+---
+## Review
+"Fight Club" by Chuck Palahniuk is a book I've always wanted to read. As a matter of fact I bought it many years ago, lend it to a friend and never saw it again. Having read "The Affirmation" by Christopher Priest I wondered how that book would compare to "Fight Club" based on having seen the movie. And so, I borrowed it from the library and have now gone through the book. Firstly, it feels as dark and bleak as the movie and the movie covers the book very well. There is of course a few things that are different, but generally speaking they are very similar.
+
+The world-view of Fight Club is based on the idea that overcoming hardships should not come through self-improvement, but rather through self-destruction. It is born out of the notion, that men in general have a difficult time of finding community easily. Somehow it is a question of the legacy that each person leaves behind. The idea that we go to work, to make money, to buy nice things and eventually die, leaving behind a bunch of nice things is at the core of it. The invention of Fight Club is to find something that matters, to do something that matters. The core notion is that having lived a life leaves scars and one should never leave the world without having done something to change it and gotten scars in the process. Hopefully, the change is for the better. It's funny how a book I find so bleak to read, somehow can be inspiring to write about.
+
+My initial purpose was to compare the feeling I gained from the "The Affirmation" by Christopher Priest, which is that of losing ones mind. "Fight Club" is somehow comparable, but it is not a story about someone losing his mind, but more a story of someone who is already partially insane and uses his insanity to create something that grows out of his control. To some degree it is better compared to other authors that seeks to explore the human condition and alternate views of life. Hence, once again I can only recommend Ursula K. Le Guin, though her approach is not quite as visceral. In terms of viscerality, I would argue that "Red Rising" by Pierce Brown is a closer comparison.
+
+## Score: 8/10
+Before I sat down to write this review, I would say: "Watch the movie, it covers it all". In terms of story, it definitely does, but it is not until you sit down and consider what the author is actually trying to say, that you realise that it is not really about the violence. It is about the community, being part of something greater, something that matters. That is where the attraction lies, building something that is greater than the individual and setting it on a course to change the world for something better. The community is above the individual and if the cause is honourable then it is even better. In some way, the argument for reading this book is to avoid the distraction of Brad Pitt's abs to actually get to the key message, which can only be derived by thinking about what the author is actually trying to say.
+
+## Links
+[Goodreads](https://www.goodreads.com/en/book/show/36236124)
