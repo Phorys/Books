@@ -1,0 +1,15 @@
+---
+title: "20. A Scanner Darkly by Philip K. Dick"
+date: 2024-01-28
+---
+## Review
+"A Scanner Darkly" by Philip K. Dick is a novel which is, strangely enough, written in 1977, but set in the 90's. The time period throughout which a large body of excellent movies about drug abuse and especially the downsides of drug abuse were made. The book shows the devastating effects of drug abuse and the brutality that is required in the environment in which it exists. Everybody knows that it will destroy the drug abusers and their community and law enforcement seems more or less powerless to stop it. What makes this an excellent read is the characters presented, which are displayed with extreme degrees of paranoia and the way that the smallest suspicion always is spun completely out of proportion is both entertaining and also a little scary. Characters which seems to be not entirely fictional, but rather based on personal experiences of the author.
+
+The gradual reveal of the plot of the book and the experiences that the main character goes through are shocking on a number of levels, helped very well by the fugue-like state of paranoia that the characters are constantly in, where anything can quickly spin out of control. The book shows a depressing environment, which the reader knows leads to an inevitable outcome, but while being a quite dark story it is also extremely intriguing, since one is constantly guessing at the mystery of who the mastermind of the group is. It is this quality that makes the book intriguing throughout.
+
+This book is probably most readily compared in style to "Fight Club" by Chuck Palahniuk and seems like the thematic ancestor to Chuck's book. At the same time it is also easily compared to "1984" by Orson Welles, but perhaps in a less societal perspective. Generally speaking, this book seems to set the scene for many movies of the 90's that deal with drugs and adicts. It seems, that this book is one of the earliest books to provide such a shocking view of the downsides of drug abuse. It very clearly comes with the ever-present warning: Don't do drugs. It'll destroy you.
+
+## Score: 8/10
+Philip K. Dick is one of the greatest Sci-Fi-writers, who has hugely influenced popular culture through the 90's and this book is one of the best of his I've read, simply due to the well-written and solid plot. The characters themselves are also distinct and intriguing, with a number of layers, which leaves the reader wanting to understand the characters and their motives even better. The book is thoroughly enjoyable and I would happily have read even more in this particular setting, but sometimes the hallmark of a great writer is knowing when to finish the story, which Philip K. Dick does beautifully in this book.
+## Links
+[Goodreads](https://www.goodreads.com/en/book/show/14817)
