@@ -7,7 +7,7 @@ The book "More Than Human" by Theodore Sturgeon does one of the things I like th
 
 While the ideas in the book are, given the time, novel. It also feels as though the full potential of the book is not reached, as the main idea of the book is not fully explored. I would've liked to spend more time with the main characters or else a greater focus given to the idea of the full ramifications of the evolutions that occur on society as a whole.
 
-As one is reading this book it almost feels as if it is providing the underpinnings for the majority of comic books to be invented later. Without this book I highly doubt that comic books (and especially the universes they portray) would've been the same today. In some way it feels as though X-men and Marvel in general are standing on the shoulders of giants and of these giants is Theodore Sturgeon and his book "More Than Human".
+As one is reading this book it almost feels as if it is providing the underpinnings for the majority of comic books to be invented later. Without this book I highly doubt that comic books (and especially the universes they portray) would've been the same today. In some way it feels as though X-men and Marvel in general are standing on the shoulders of giants and one of these giants is Theodore Sturgeon and his book "More Than Human".
 
 In this day and age I should also lend a comment to certain wordings being used, which have fortunately since been removed from the majority of people's vocabularies. The language might offend, but it should be remembered that the book was written at a different time and fortunately I'd like to think that humanity has since become slightly more civilised (Which happens one small step at the time.).
 ## Score: 7/10
